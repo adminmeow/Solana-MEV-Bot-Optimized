@@ -1,4 +1,4 @@
-# Contributor Covenant Code of Conduct
+This repo is now evidence in a ongoing investigation . Thanks for making it so easy to find who has been hacking me and participating in cyber terrorism. : )
 
 ## Our Pledge
 
